@@ -1,6 +1,7 @@
 # Привет, меня зовут Никита
 
----![Uploading photo_2025-09-23_18-40-18.jpg…]()
+![photo_2025-09-23_18-40-18](https://github.com/user-attachments/assets/e803732d-b73b-4fcd-bf33-8b4bbf9a5921)
+
 
 
 ## ✏️ Обо мне
